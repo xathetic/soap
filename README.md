@@ -1,6 +1,7 @@
 <p align="center">
   
-<img width="300" height="300" alt="download-removebg-preview__fliter--warm-x-rays__channel--all__mode--normal__fliter--x-rays__channel--all__mode--luminosity" src="https://github.com/user-attachments/assets/4a9bf8a3-f762-443c-a143-81ac21725ad8" />
+<img width="736" height="736" alt="graphics lol _20260324151857" src="https://github.com/user-attachments/assets/c6fc9511-4387-4844-923c-55f56667a32b" />
+
 
 <p align="center">  
 ill change this later lol

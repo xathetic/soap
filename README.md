@@ -1,6 +1,7 @@
 <p align="center">
   
-<img width="736" height="736" alt="graphics lol _20260324151857" src="https://github.com/user-attachments/assets/c6fc9511-4387-4844-923c-55f56667a32b" />
+<img width="736" height="736" alt="graphics lol _20260324175634" src="https://github.com/user-attachments/assets/33226066-381c-480f-9045-6374702fd109" />
+
 
 
 <p align="center">  

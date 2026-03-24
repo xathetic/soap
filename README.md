@@ -4,4 +4,5 @@
 
 <p align="center">
 
-$${\color{C08071}wip.}$$
+$${\color{C08071}c*h \space encouraged .}$$
+

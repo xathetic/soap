@@ -10,4 +10,4 @@ $${\color{C08071}wip .}$$
 
 <div align="center">
  
-$${\color{C08071}do \space not \space follow }$$ [@loonaclows](https://github.com/loonaclows) $${\color{C08071}he \space calls \space me \space a \space NERD!!!! }$$
+do not follow [@loonaclows](https://github.com/loonaclows) he bullies me DAILY !!!!!!!! 

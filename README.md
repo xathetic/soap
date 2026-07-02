@@ -8,6 +8,6 @@
 <p/>
 <img width="468" alt="IMG_7065" src="https://github.com/user-attachments/assets/ae797eab-8d74-480a-acfc-42aaa28abc42" />
 
-<p align="center"
-<p/>  
-wip 😳
+<p align="center" 
+
+[![Alt text for broken image link ](https://i.postimg.cc/7ZWJYTg0/Untitled29-20260702160541.png)](https://prns.cc/qczhx)

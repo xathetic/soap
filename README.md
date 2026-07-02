@@ -1,13 +1,13 @@
-<p align="center" 
-<p/> 
-<img width="900" alt="IMG_0773" src="https://github.com/user-attachments/assets/e08de7db-4486-4397-8c21-fab6f90f47aa" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Impact&duration=3000&pause=1000&color=9298A3&width=435&lines=Detective%3A+Who+the+fuck+are+you%3F;Hutch+Mansell%3A+Me%3F+Me%2C+I'm...;I'm+nobody.)](https://git.io/typing-svg)
 
 <p align="center" 
 <p/>
 
 <img width="1807" height="1030" alt="IMG_7063" src="https://github.com/user-attachments/assets/4beca048-9ece-4e0c-a401-9d3051ee4b2b" />
 
-<img width="900" alt="IMG_0774" src="https://github.com/user-attachments/assets/d6072ccf-24ce-42e9-929a-52b7373a750a" />
+<p/>
+<img width="468" alt="IMG_7065" src="https://github.com/user-attachments/assets/ae797eab-8d74-480a-acfc-42aaa28abc42" />
 
-
-wip :—P
+<p align="center"
+<p/>  
+wip 😳
